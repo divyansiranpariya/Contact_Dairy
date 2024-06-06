@@ -49,5 +49,13 @@ https://github.com/divyansiranpariya/Contact_Dairy/assets/154776848/58b5ad46-fc6
 
 
 # Screenshorts
-![conex](https://github.com/divyansiranpariya/Contact_Dairy/assets/154776848/9f02030a-9211-438c-ac55-16459359ab18)
 
+![co1](https://github.com/divyansiranpariya/Contact_Dairy/assets/154776848/8db8bb54-af81-49bc-93b2-165457b6942b)
+![co1 2](https://github.com/divyansiranpariya/Contact_Dairy/assets/154776848/45071827-bf15-4a43-84a6-5ce7f7dccf99)
+![co2](https://github.com/divyansiranpariya/Contact_Dairy/assets/154776848/a0bcafe6-0d39-4cc4-9dea-bf4ed831dc58)
+![co3](https://github.com/divyansiranpariya/Contact_Dairy/assets/154776848/3dd58d21-1396-46be-898d-d27206b75d28)
+![co4](https://github.com/divyansiranpariya/Contact_Dairy/assets/154776848/ab2d4f7c-c37d-4f25-af98-c49b0c12c15a)
+![co5](https://github.com/divyansiranpariya/Contact_Dairy/assets/154776848/f48ce0b9-e240-4963-bff5-70ff9e6a182d)
+![co6](https://github.com/divyansiranpariya/Contact_Dairy/assets/154776848/982a18ec-2a9e-4e11-ac8a-f54d98246e1f)
+![co7 2](https://github.com/divyansiranpariya/Contact_Dairy/assets/154776848/2d49d9b6-fbec-4328-8e83-e119014b2461)
+![co8](https://github.com/divyansiranpariya/Contact_Dairy/assets/154776848/4ed42572-1920-48bb-a00f-ffdcd3f8f109)
